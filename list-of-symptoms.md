@@ -17,13 +17,27 @@ I currently have.
   - Nasal congestion is relatively new (not due to cold). I believe it's developed since sometime around mid 2019?
 - Dizziness
 - Headache
+  - I wouldn't even call it headache but more like a weird discomfort clouds my mental ability
+  - Makes it hard to reason and not want to do things. Consuming media is more comfortable during this time vs creating.
 - Blurred vision
+  - Usually
 - Back pain
   - My shoulder, my middle back, my lower back
   - Feels muscular in nature    
+- Muscle twitches
+  - Before it happens to my left hand and left foot bottom, which usually happens when they're relaxed lasts for quite a while almost non-stop
+  - Now it's not as constnat but all over my body randomly and usually stops after several twitches
+    - Thigh
+    - Calf
+    - Bicep
+    - Elbow
+    - Bottom of feet
 - Random needle pain
   - Happens around my body, I'll try to record more info.
 - Bruises
-  - Two unexplained yellow bruises found on my left thigh.
+  - Three unexplained yellow bruises found on my left thigh.
+- Tinnitus
+  - It's been here since the first day (Aug 24) I had insomnia for a whole night
+  - I've gotten used to it at this point that it doesn't bother me as much
 - Left hand weakness
   - This has happened before
