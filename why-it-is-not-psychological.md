@@ -6,6 +6,8 @@ At the beginning of 2019, I started coughing really bad. I could only get 1 hour
 
 However, I don't recall having this weird head feeling that I'm having right now. The sleep deprivation effect or headache was more distinct. Now it's more muddy masked by this weird headache or discomfort. Once I elminated the possibility of HIV, I was much more relaxed and was able to take a deep nap. Nowadays, I feel like that falling asleep natural mechanism is broken. It could be blocked by this weird headache, or the mechanism is actually broken.
 
+I was also constantly reminded of my fear because of the physical feeling (post nasal drip and coughing). But now, I can't possibly having anxiety inducing thought all the time, and during calm period of the day, I'm not drifting off.
+
 ## Another example of anxiety-induced episode
 When I was sleeping in a basement room in late 2015, there was bug crawling and it prevented me from sleeping. But eventually my tiredness overcame my anxiety.
 
