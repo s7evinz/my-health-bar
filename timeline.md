@@ -511,3 +511,27 @@ heavy. I think it might have something to do with soreness with muscles.
 Alarmed 6:30.
 
 Got up 6:45
+
+#### 14
+Worked out. Slightly heavier weights.
+
+Night feeling a little light headed.
+
+#### 15
+Right eye too teary / irritated to continue. Went home earlier than planned
+
+Windy and cold night on the way home.
+
+#### 16
+Eyes are still a bit shitty.
+
+#### 23
+Had a pretty nice and long sleep. Woke up after 8, went to bed at around 11:30.
+
+### Nov
+#### 7
+Jesus headache after home and 5x sneezes. Maybe due to the coffee too.
+
+### Dec
+#### 27
+I'm sick today (started the heavy cough). Drove to Barrie and back.
